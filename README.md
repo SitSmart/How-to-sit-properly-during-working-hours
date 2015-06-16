@@ -1,1 +1,1 @@
-# How-to-sit-properly-during-working-hours
+How to sit properly during working hours
